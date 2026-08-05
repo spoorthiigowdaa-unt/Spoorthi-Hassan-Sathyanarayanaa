@@ -63,8 +63,8 @@
 ---
 
 ## 📫 Connect With Me
-- LinkedIn: [-]  
-- Email: [spoorthii.gowdaa@gmail.com]
+- LinkedIn: [www.linkedin.com/in/spoorthi-h-sathyanarayana]  
+- Email: [spoorthihsathya20@gmail.com]
 
 ---
 
